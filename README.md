@@ -1,0 +1,1 @@
+# CTDT-Galgotias-BatchNo5-Task2-AnalyticalThinkingDrivenByDesignThinking
